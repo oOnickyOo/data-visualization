@@ -14,3 +14,9 @@ GRE list 6-10
 data visualization practice
 
 day 8 to 11
+GRE list 11-15
+Portfolio editing
+
+day 12 to 15
+GRE list 16-20
+personal statement 
